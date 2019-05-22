@@ -1,1 +1,1 @@
-Welcome to the FLINT wiki!
+Welcome to the moja.global wiki!
